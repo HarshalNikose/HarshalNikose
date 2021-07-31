@@ -10,5 +10,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about Finance
 - 📫 How to reach me: https://www.instagram.com/your_data__guy/
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I am half finished
--->
+- ⚡ Fun fact: I am half baked
