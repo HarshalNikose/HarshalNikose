@@ -8,7 +8,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on Kaggle competition 
 - 🤔 I’m looking for help with AWS
 - 💬 Ask me about Finance
-- 📫 How to reach me: [LinkedIn](www.linkedin.com/in/harshalnikose) & [Twitter](https://twitter.com/HarshalNikose)
+- 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/harshalnikose/) & [Twitter](https://twitter.com/HarshalNikose)
 - 📫 Also on Instagram: [Instagram](https://www.instagram.com/your_data__guy/)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am half baked
