@@ -8,6 +8,6 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on Kaggle competition 
 - 🤔 I’m looking for help with AWS
 - 💬 Ask me about Finance
-- 📫 How to reach me: [Instagram](https://www.instagram.com/your_data__guy/)
+- 📫 How to reach me: [Instagram](https://www.instagram.com/your_data__guy/) & [Twitter](https://twitter.com/HarshalNikose)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am half baked
